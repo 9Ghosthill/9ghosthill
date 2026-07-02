@@ -1,3 +1,4 @@
+![Uploading tải xuống (2).gif…]()
 
 
 
@@ -13,7 +14,7 @@ So you think of what to say
 
 Then save it for another day
 
-'Cause you just never had the heart![Uploading image.png…]()
+'Cause you just never had the heart
 
 
 Now they just drift further apart
