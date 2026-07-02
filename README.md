@@ -3,6 +3,7 @@ Her love is in your head
 You lost your earrings in her bed
 
 You couldn't tell her that you lost them
+<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/a7102637-6d0e-4649-aaa9-87ef7949b159" />
 
 'Cause you're scared and you're not talking
 
@@ -70,7 +71,7 @@ Can't get out of it
 
 Can't get out of it
 
-Okay, well, I hope you like my mixtape
+
 
 
 <!--
