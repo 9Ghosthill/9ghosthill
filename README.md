@@ -1,5 +1,4 @@
 
-![Uploading c2af476dfd25fbd5535007f73cb0b795.gif…]()
 
 
 
@@ -14,7 +13,8 @@ So you think of what to say
 
 Then save it for another day
 
-'Cause you just never had the heart
+'Cause you just never had the heart![Uploading image.png…]()
+
 
 Now they just drift further apart
 
