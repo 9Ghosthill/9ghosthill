@@ -1,8 +1,4 @@
-<img width="499" height="275" alt="fb5648dc6e39b7b724cb0daf3693610f" src="https://github.com/user-attachments/assets/9c2ae053-8382-479f-adba-818ab5560f85" />
-<p align="center">
-  <img src="<img width="499" height="275" alt="fb5648dc6e39b7b724cb0daf3693610f" src="https://github.com/user-attachments/assets/9c2ae053-8382-479f-adba-818ab5560f85" />" width="750">
-</p>
-
+<img width="900" height="275" alt="fb5648dc6e39b7b724cb0daf3693610f" src="https://github.com/user-attachments/assets/9c2ae053-8382-479f-adba-818ab5560f85" />
 
 
 𝑒𝑟 𝑙𝑜𝑣𝑒 𝑖𝑠 𝑖𝑛 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑑 ♪
