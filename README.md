@@ -7,82 +7,78 @@
 
 
 
+𝐻𝑒𝑟 𝑙𝑜𝑣𝑒 𝑖𝑠 𝑖𝑛 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑑 ♪
 
-Her love is in your head ♪
+𝑌𝑜𝑢 𝑙𝑜𝑠𝑡 𝑦𝑜𝑢𝑟 𝑒𝑎𝑟𝑟𝑖𝑛𝑔𝑠 𝑖𝑛 ℎ𝑒𝑟 𝑏𝑒𝑑
 
-You lost your earrings in her bed
+𝑌𝑜𝑢 𝑐𝑜𝑢𝑙𝑑𝑛'𝑡 𝑡𝑒𝑙𝑙 ℎ𝑒𝑟 𝑡ℎ𝑎𝑡 𝑦𝑜𝑢 𝑙𝑜𝑠𝑡 𝑡ℎ𝑒𝑚
 
-You couldn't tell her that you lost them
+'𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢'𝑟𝑒 𝑠𝑐𝑎𝑟𝑒𝑑 𝑎𝑛𝑑 𝑦𝑜𝑢'𝑟𝑒 𝑛𝑜𝑡 𝑡𝑎𝑙𝑘𝑖𝑛𝑔
 
-'Cause you're scared and you're not talking
+𝑆𝑜 𝑦𝑜𝑢 𝑡ℎ𝑖𝑛𝑘 𝑜𝑓 𝑤ℎ𝑎𝑡 𝑡𝑜 𝑠𝑎𝑦
 
+𝑇ℎ𝑒𝑛 𝑠𝑎𝑣𝑒 𝑖𝑡 𝑓𝑜𝑟 𝑎𝑛𝑜𝑡ℎ𝑒𝑟 𝑑𝑎𝑦
 
-So you think of what to say
+'𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢 𝑗𝑢𝑠𝑡 𝑛𝑒𝑣𝑒𝑟 ℎ𝑎𝑑 𝑡ℎ𝑒 ℎ𝑒𝑎𝑟𝑡
 
+𝑁𝑜𝑤 𝑡ℎ𝑒𝑦 𝑗𝑢𝑠𝑡 𝑑𝑟𝑖𝑓𝑡 𝑓𝑢𝑟𝑡ℎ𝑒𝑟 𝑎𝑝𝑎𝑟𝑡
 
-Then save it for another day
+𝐹𝑟𝑜𝑚 𝑦𝑜𝑢
 
-'Cause you just never had the heart
+𝐹𝑟𝑜𝑚 𝑦𝑜𝑢
 
+𝐹𝑟𝑜𝑚 𝑦𝑜𝑢
 
-Now they just drift further apart
+𝐹𝑟𝑜𝑚 𝑦𝑜𝑢
 
-From you
+𝐻𝑒𝑟 𝑙𝑜𝑣𝑒 𝑖𝑠 𝑖𝑛 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑑
 
-From you
+𝑌𝑜𝑢 𝑙𝑜𝑠𝑡 𝑦𝑜𝑢𝑟 𝑒𝑎𝑟𝑟𝑖𝑛𝑔𝑠 𝑖𝑛 ℎ𝑒𝑟 𝑏𝑒𝑑
 
-From you
+𝑌𝑜𝑢 𝑐𝑜𝑢𝑙𝑑𝑛'𝑡 𝑡𝑒𝑙𝑙 ℎ𝑒𝑟 𝑡ℎ𝑎𝑡 𝑦𝑜𝑢 𝑙𝑜𝑠𝑡 𝑡ℎ𝑒𝑚
 
-From you
+'𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢'𝑟𝑒 𝑠𝑐𝑎𝑟𝑒𝑑 𝑎𝑛𝑑 𝑦𝑜𝑢'𝑟𝑒 𝑛𝑜𝑡 𝑡𝑎𝑙𝑘𝑖𝑛𝑔
 
-Her love is in your head
+𝑆𝑜 𝑦𝑜𝑢 𝑡ℎ𝑖𝑛𝑘 𝑜𝑓 𝑤ℎ𝑎𝑡 𝑡𝑜 𝑠𝑎𝑦
 
-You lost your earrings in her bed
+𝑇ℎ𝑒𝑛 𝑠𝑎𝑣𝑒 𝑖𝑡 𝑓𝑜𝑟 𝑎𝑛𝑜𝑡ℎ𝑒𝑟 𝑑𝑎𝑦
 
-You couldn't tell her that you lost them
+'𝐶𝑎𝑢𝑠𝑒 𝑦𝑜𝑢 𝑗𝑢𝑠𝑡 𝑛𝑒𝑣𝑒𝑟 ℎ𝑎𝑑 𝑡ℎ𝑒 ℎ𝑒𝑎𝑟𝑡
 
-'Cause you're scared and you're not talking
+𝑁𝑜𝑤 𝑡ℎ𝑒𝑦 𝑗𝑢𝑠𝑡 𝑑𝑟𝑖𝑓𝑡 𝑓𝑢𝑟𝑡ℎ𝑒𝑟 𝑎𝑝𝑎𝑟𝑡
 
-So you think of what to say
+𝐸𝑥𝑡𝑟𝑎, 𝑒𝑥𝑡𝑟𝑎 𝑟𝑒𝑎𝑑 𝑎𝑙𝑙 𝑎𝑏𝑜𝑢𝑡 𝑖𝑡
 
-Then save it for another day
+𝑀𝑎𝑙𝑐𝑜𝑙𝑚'𝑠 𝑖𝑛 ℎ𝑖𝑠 𝑓𝑒𝑒𝑙𝑖𝑛𝑔𝑠 𝑎𝑛𝑑 ℎ𝑒 𝑐𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡 (𝑓𝑟𝑜𝑚 𝑦𝑜𝑢)
 
-'Cause you just never had the heart
+𝐸𝑥𝑡𝑟𝑎, 𝑒𝑥𝑡𝑟𝑎 𝑟𝑒𝑎𝑑 𝑎𝑙𝑙 𝑎𝑏𝑜𝑢𝑡 𝑖𝑡
 
-Now they just drift further apart
+𝑀𝑎𝑙𝑐𝑜𝑙𝑚'𝑠 𝑖𝑛 ℎ𝑖𝑠 𝑓𝑒𝑒𝑙𝑖𝑛𝑔𝑠 𝑎𝑛𝑑 ℎ𝑒 𝑐𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡 (𝑓𝑟𝑜𝑚 𝑦𝑜𝑢)
 
-Extra, extra read all about it
+𝐸𝑥𝑡𝑟𝑎, 𝑒𝑥𝑡𝑟𝑎 𝑟𝑒𝑎𝑑 𝑎𝑙𝑙 𝑎𝑏𝑜𝑢𝑡 𝑖𝑡
 
-Malcolm's in his feelings and he can't get out of it (from you)
+𝑀𝑎𝑙𝑐𝑜𝑙𝑚'𝑠 𝑖𝑛 ℎ𝑖𝑠 𝑓𝑒𝑒𝑙𝑖𝑛𝑔𝑠 𝑎𝑛𝑑 ℎ𝑒 𝑐𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡 (𝑓𝑟𝑜𝑚 𝑦𝑜𝑢)
 
-Extra, extra read all about it
+𝐸𝑥𝑡𝑟𝑎, 𝑒𝑥𝑡𝑟𝑎 𝑟𝑒𝑎𝑑 𝑎𝑙𝑙 𝑎𝑏𝑜𝑢𝑡 𝑖𝑡
 
-Malcolm's in his feelings and he can't get out of it (from you)
+𝑀𝑎𝑙𝑐𝑜𝑙𝑚'𝑠 𝑖𝑛 ℎ𝑖𝑠 𝑓𝑒𝑒𝑙𝑖𝑛𝑔𝑠 𝑎𝑛𝑑 ℎ𝑒 𝑐𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡
 
-Extra, extra read all about it
+𝐹𝑟𝑜𝑚 𝑦𝑜𝑢
 
-Malcolm's in his feelings and he can't get out of it (from you)
+𝐹𝑟𝑜𝑚 𝑦𝑜𝑢
 
-Extra, extra read all about it
+𝐸𝑥𝑡𝑟𝑎, 𝑒𝑥𝑡𝑟𝑎 𝑟𝑒𝑎𝑑 𝑎𝑙𝑙 𝑎𝑏𝑜𝑢𝑡 𝑖𝑡
 
-Malcolm's in his feelings and he can't get out of it
+𝑀𝑎𝑙𝑐𝑜𝑙𝑚'𝑠 𝑖𝑛 ℎ𝑖𝑠 𝑓𝑒𝑒𝑙𝑖𝑛𝑔𝑠 𝑎𝑛𝑑 ℎ𝑒 𝑐𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡 (𝑓𝑟𝑜𝑚 𝑦𝑜𝑢)
 
-From you
+𝐸𝑥𝑡𝑟𝑎, 𝑒𝑥𝑡𝑟𝑎 𝑟𝑒𝑎𝑑 𝑎𝑙𝑙 𝑎𝑏𝑜𝑢𝑡 𝑖𝑡
 
-From you
+𝑀𝑎𝑙𝑐𝑜𝑙𝑚'𝑠 𝑖𝑛 ℎ𝑖𝑠 𝑓𝑒𝑒𝑙𝑖𝑛𝑔𝑠 𝑎𝑛𝑑 ℎ𝑒 𝑐𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡
 
-Extra, extra read all about it
+𝐶𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡
 
-Malcolm's in his feelings and he can't get out of it (from you)
+𝐶𝑎𝑛'𝑡 𝑔𝑒𝑡 𝑜𝑢𝑡 𝑜𝑓 𝑖𝑡 ♪
 
-Extra, extra read all about it
-
-Malcolm's in his feelings and he can't get out of it
-
-Can't get out of it
-
-Can't get out of it..
-♬
 
 
 
