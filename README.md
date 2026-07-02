@@ -12,6 +12,7 @@ You lost your earrings in her bed
 You couldn't tell her that you lost them
 'Cause you're scared and you're not talking
 
+
 So you think of what to say
 
 Then save it for another day
