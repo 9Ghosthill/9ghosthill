@@ -1,6 +1,7 @@
 <img width="499" height="275" alt="fb5648dc6e39b7b724cb0daf3693610f" src="https://github.com/user-attachments/assets/9c2ae053-8382-479f-adba-818ab5560f85" />
 
 
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/74db5a17-7122-47d5-ab56-ad30711934fc" />
 
 
 
@@ -10,10 +11,12 @@ Her love is in your head
 You lost your earrings in her bed
 
 You couldn't tell her that you lost them
+
 'Cause you're scared and you're not talking
 
 
 So you think of what to say
+
 
 Then save it for another day
 
