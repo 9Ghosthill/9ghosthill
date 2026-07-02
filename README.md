@@ -1,6 +1,18 @@
 <img width="900" height="275" alt="fb5648dc6e39b7b724cb0daf3693610f" src="https://github.com/user-attachments/assets/9c2ae053-8382-479f-adba-818ab5560f85" />
 
-
+<p align="center">
+her love is in your head ♪<br>
+You lost your earrings in her bed<br>
+You couldn't tell her that you lost them<br>
+'Cause you're scared and you're not talking<br>
+So you think of what to say<br>
+Then save it for another day<br>
+'Cause you just never had the heart<br>
+Now they just drift further apart<br>
+From you<br>
+From you<br>
+From you
+</p>
 𝑒𝑟 𝑙𝑜𝑣𝑒 𝑖𝑠 𝑖𝑛 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑑 ♪
 
 𝑌𝑜𝑢 𝑙𝑜𝑠𝑡 𝑦𝑜𝑢𝑟 𝑒𝑎𝑟𝑟𝑖𝑛𝑔𝑠 𝑖𝑛 ℎ𝑒𝑟 𝑏𝑒𝑑
