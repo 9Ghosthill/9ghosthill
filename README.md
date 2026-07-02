@@ -8,7 +8,7 @@
 
 
 
-Her love is in your head
+Her love is in your head ♪
 
 You lost your earrings in her bed
 
@@ -81,7 +81,8 @@ Malcolm's in his feelings and he can't get out of it
 
 Can't get out of it
 
-Can't get out of it
+Can't get out of it..
+♬
 
 
 
